@@ -1,4 +1,4 @@
-#  
+#  Experience spin a soccer card like never before with spin a soccer card secure Scripts, the #1 Script. Includes one-hit kill and instant win for
 
 
 
